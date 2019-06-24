@@ -1,5 +1,5 @@
-
 4. Innovative Designer
+
 Students use a variety of technologies within a design process to identify and solve problems by creating new, useful or imaginative solutions. 
 
 Students:
